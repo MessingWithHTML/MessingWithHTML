@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MessingWithHTML
-- 👀 I’m interested in HTML, Gaming etc
-- 🌱 I’m currently learning HTML
+- 👀 I’m interested in HTML, Gaming, Astronomy etc
+- 🌱 I’m currently learning HTML and bit of Javascript
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me... well, Don't
 
