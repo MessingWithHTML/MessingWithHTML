@@ -1,7 +1,7 @@
 - 😊 Hi! My (Real) name is Shlok. I am an 12 year old whose b'day is 26th April 2012.
  So enjoy reading my details!
 - 👋 My gamer tags are - Messy_1011, Shlok26, Killer and many more...
-- 😎 My Intrests/Hobbies include Reading, Programming, Gaming, Astronomy, Sports (Mainly Football) and drawing sketches of famous football players.
+- 😎 My Intrests/Hobbies include Reading, Programming, Gaming, Astronomy, Sports (Mainly Football) and drawing portraits
 - 💻 The programming language that I know and am comfortable with is HTML.
 - 👓 I am a PotterHead. (A HUGE Harry Potter Fan).
 - 🤷‍♂️ BTW I am fairly new (4 years of coding) so I am not an expert in programming and might need some help from u guys.
