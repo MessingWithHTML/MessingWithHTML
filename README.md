@@ -1,4 +1,4 @@
-- 😊 Hi! My (Real) name is Shlok. I am an 12 year old whose b'day is 26th April 2012. My discord ID is "messy_10119"
+- 😊 Hi! My (Real) name is Shlok. I am an 12 year old whose b'day is 26th April 2012.
  So enjoy reading my details!
 - 👋 My gamer tags are - Messy_1011, Shlok26, Killer and many more...
 - 😎 My Intrests/Hobbies include Reading, Programming, Gaming, Astronomy, Sports (Mainly Football) and drawing sketches of famous football players.
